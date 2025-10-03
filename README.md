@@ -5,7 +5,7 @@ Conformément au RGPD, vous avez le droit de demander la suppression de toutes v
 
 ## 2. Méthodes de demande
 **Via WhatsApp :**
-Envoyez le message : "SUPPRIMER MES DONNÉES" au +242 05 361 4127
+Envoyez le message : "SUPPRIMER MES DONNÉES" au +242 05 361 4127 
 
 ## 3. Données concernées
 Seront supprimées :
